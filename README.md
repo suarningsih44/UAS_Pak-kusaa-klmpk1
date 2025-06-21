@@ -1,1 +1,0 @@
-# UAS_Pak-kusaa-klmpk1
